@@ -1,4 +1,4 @@
-bl4ckrockz-f1nest --------------------------------------------------
+C4t4clysm1c. --------------------------------------------------
 - UpTime: . . . . . . . . . . . . . . . . . . . . . . . . 5 Years
 - Host: . . . . . . . . . . . . . . . . . . . . .  .. . . 17 Years
 - StartDate: . . . . . . . . . . . . . . . . . . . . . 11.06.2020
@@ -6,9 +6,9 @@ bl4ckrockz-f1nest --------------------------------------------------
 - Languages.Real: . . . . . . . . . . . . . . . . . English, Spanish
 - Languages.Programming: . . . . . . . . . . . . . Java, Python, C++
 -
-- Hobbies.Software: . . . . . . . . . . Roblox, Minecraft, ULTRAKILL
+- Hobbies.Software: . . . . . . . . . . Roblox, Minecraft, VR, STEAM
 - Hobbies.Offline: . . . . . . . . . . Art, Mechanics, Reading, ETC.
 -
 Contact -------------------------------------------------------------
-- Discord: . . . . . . . . . . . . . . . . . . . . . . .tr1dentz.ke3p.
+- Discord: . . . . . . . . . . . . . . . . . . . . . . c4taclysmic.
 - Roblox: . . . . . . . . . . . . . . . . . . . . . . . . . @SsBlue_z
